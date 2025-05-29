@@ -1,1 +1,0 @@
-# MATEMATICA-2
